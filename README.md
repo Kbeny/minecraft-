@@ -1,4 +1,4 @@
-  NOTE THIS ONLY WORKS ON MAC
+  NOTE IM ONLY DOWLOADING STUFF FOR MAC
 
   this is minecraft i downloaded from some website im 99.99% sure it really is minecraft
   if you want to download staight from the website ill put that below,
