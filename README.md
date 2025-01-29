@@ -5,4 +5,4 @@
   i will continue to upload more minecrafts i find.
 
   minecraft demo: https://minecraft.en.uptodown.com/mac
-  
+  eaglecraft 1.5.2: https://github.com/vidio-boy/Eaglercraft1.5.2/blob/main/eaglercraft.1.5.2.html
