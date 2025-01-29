@@ -1,5 +1,5 @@
   NOTE IM ONLY DOWLOADING STUFF FOR MAC
-                    WARNING I HAVE NOT TESTED THESE FILES IF THEY ARE MALICIOUS PLEASE DO NOT BLAME ME
+  WARNING I HAVE NOT TESTED THESE FILES IF THEY ARE MALICIOUS PLEASE DO NOT BLAME ME
   this is minecraft i downloaded from some website im 99.99% sure it really is minecraft
   if you want to download staight from the website ill put that below,
   i will continue to upload more minecrafts i find.
